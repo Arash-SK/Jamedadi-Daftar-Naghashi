@@ -1,1 +1,0 @@
-# Jamedadi-Daftar-Naghashi
